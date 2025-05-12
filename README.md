@@ -1,6 +1,6 @@
 # 放心云机场官网地址
 
-最新地址：[fxyjs.fun](https://web.wowfxy.com/#/register?code=FKGGgn1L)
+最新地址：[fxyjs.fun](https://kk.fxyjs.fun/#/register?code=FKGGgn1L)
 
 ## 放心云介绍
 
